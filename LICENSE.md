@@ -1,4 +1,4 @@
-#  
+#  Experience driving empire like never before with driving empire smart Script, the #1 Script. Includes private server access and undetectable for
 
 
 
